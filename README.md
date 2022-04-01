@@ -47,6 +47,10 @@ Polaroid Love is a much softer song in contrast to “Blessed-Cursed,” as the 
 
 
 
+
+
+
+
 ## **ENHYPEN is available on these apps**
 
 [INSTAGRAM](https://instagram.com/enhypen?utm_medium=copy_link)
