@@ -1,6 +1,6 @@
 # ENHYPEN 
 
-###### Owned by Sophia
+
 ![dda91e95b5915bb86081d8461d71cfe4](https://user-images.githubusercontent.com/102729941/161068071-186ecba1-86b8-43ed-8eb3-f637e1d17f4e.jpg)
 
 "One, Two, Connect! Annyeonghaseyo enhaipen-ibnida!" Enhypen, commonly stylized as ENHYPEN, is a South Korean boy 
@@ -49,11 +49,11 @@ Polaroid Love is a much softer song in contrast to “Blessed-Cursed,” as the 
 
 ## **ENHYPEN is available on these apps**
 
-[![INSTAGRAM](https://instagram.com/enhypen?utm_medium=copy_link)
+(https://instagram.com/enhypen?utm_medium=copy_link)
 
-[![YOUTUBE](https://youtube.com/c/ENHYPENOFFICIAL)
+(https://youtube.com/c/ENHYPENOFFICIAL)
 
-[![FACEBOOK](https://www.facebook.com/officialENHYPEN)
+(https://www.facebook.com/officialENHYPEN)
 
 
 
