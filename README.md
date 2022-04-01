@@ -23,11 +23,13 @@ Fever is about wanting someone to acknowledge their presence, compares their bod
 
 [![ENHYPEN](https://user-images.githubusercontent.com/102729941/161175084-08814854-fe22-45fc-a165-53418dbc90d0.jpg)](https://youtu.be/X7d6Dt17yHk) 
 
+# DIMENSION: DELIMMA 
 
+###### **Upper Side Dreamin'** 
 
+This song is one of the best b-sides aside from fever. It helps me feel relaxed and calm while doing my modulebut sometimes it can distract you because of it's catchy tone.  
 
-
-
+[![ENHYPEN](https://user-images.githubusercontent.com/102729941/161177685-70e92118-644e-4975-9f4a-190bd7f26b22.jpg)](https://youtu.be/CBA4tgpHcEc)
 
 
  
