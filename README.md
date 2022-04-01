@@ -27,27 +27,33 @@ Fever is about wanting someone to acknowledge their presence, compares their bod
 
 ###### **Upper Side Dreamin'** 
 
-This song is one of the best b-sides aside from fever. It helps me feel relaxed and calm while doing my modulebut sometimes it can distract you because of it's catchy tone.  
+This song is one of the best b-sides tracks aside from fever. It helps me feel relaxed and calm while doing my module sometimes it can distract you because of it's catchy tone.  
 
 [![ENHYPEN](https://user-images.githubusercontent.com/102729941/161177685-70e92118-644e-4975-9f4a-190bd7f26b22.jpg)](https://youtu.be/CBA4tgpHcEc)
 
-
+# DIMENSION: ANSWER
  
+###### **Blessed-Cursed**
+
+This song was a mix of rock and pop. When I first heard this song, it's quite different from their previous combacks but as you repeat it again you will get addicted to the song. 
+
+[![ENHYPEN](https://user-images.githubusercontent.com/102729941/161178884-9d9757f9-080d-4824-8f4f-960752a98e1c.jpg)](https://youtu.be/osmHArcf_aE)
+
+###### **Polaroid love**
+
+Polaroid Love is a much softer song in contrast to “Blessed-Cursed,” as the lyrics compare love to a polaroid photograph. With melodic voices and a soft tune, “Polaroid Love” is a beautiful track and very opposite of their powerful “Blessed-Cursed.”
+
+[![ENHYPEN](https://user-images.githubusercontent.com/102729941/161179509-63e7a130-db26-4624-a734-cb5976a27d23.jpg)](https://youtu.be/vRdZVDWs3BI)
 
 
 
+## **ENHYPEN is available on these apps**
 
+[![INSTAGRAM](https://instagram.com/enhypen?utm_medium=copy_link)
 
+[![YOUTUBE](https://youtube.com/c/ENHYPENOFFICIAL)
 
-
-
-
-
-
-
-
-
-
+[![FACEBOOK](https://www.facebook.com/officialENHYPEN)
 
 
 
