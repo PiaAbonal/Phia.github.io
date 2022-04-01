@@ -9,7 +9,10 @@ band formed by Belift Lab, a joint venture between CJ ENM and Hybe Corporation. 
 # BORDER: DAY ONE 
 
 ## Given-Taken 
-[![ENHYPEN](https://youtu.be/nQ6wLuYvGd4)](https://youtu.be/nQ6wLuYvGd4) 
+[![ENHYPEN](https://user-images.githubusercontent.com/102729941/161172949-1fb6b8e5-d6a2-4d9f-8b16-b3d238ecc685.jpg)](https://youtu.be/nQ6wLuYvGd4)
+
+
+
 
 
 
