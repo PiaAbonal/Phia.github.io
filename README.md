@@ -8,7 +8,9 @@ band formed by Belift Lab, a joint venture between CJ ENM and Hybe Corporation. 
 
 # BORDER: DAY ONE 
 
-## Given-Taken 
+1. **Given-Taken** 
+>**One of my favorite song in BORDER: DAY ONE is Given-Taken. Given-Taken is a song partially based on a vampiric theme, with applicable references being made in the lyrics. But beyond that, the lyrics are meant to express ENHYPEN's (Jay, Ni-Ki, Jake, Heeseung, Park Sung-hoon, Jungwon and Sunoo) feelings in relation to their newfound stardom.** 
+
 [![ENHYPEN](https://user-images.githubusercontent.com/102729941/161172949-1fb6b8e5-d6a2-4d9f-8b16-b3d238ecc685.jpg)](https://youtu.be/nQ6wLuYvGd4)
 
 
