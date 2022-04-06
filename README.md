@@ -1,4 +1,5 @@
 # ENHYPEN 
+Owned by Sophia
 
 
 ![dda91e95b5915bb86081d8461d71cfe4](https://user-images.githubusercontent.com/102729941/161068071-186ecba1-86b8-43ed-8eb3-f637e1d17f4e.jpg)
@@ -8,7 +9,7 @@ band formed by Belift Lab, a joint venture between CJ ENM and Hybe Corporation. 
 
 # BORDER: DAY ONE 
 
-###### **Given-Taken** 
+- Given-Taken
 
 One of my favorite song in BORDER: DAY ONE is Given-Taken. Given-Taken is a song partially based on a vampiric theme, with applicable references being made in the lyrics. But beyond that, the lyrics are meant to express ENHYPEN's (Jay, Ni-Ki, Jake, Heeseung, Park Sung-hoon, Jungwon and Sunoo) feelings in relation to their newfound stardom.
 
@@ -16,7 +17,7 @@ One of my favorite song in BORDER: DAY ONE is Given-Taken. Given-Taken is a song
 
 # BORDER: CARNIVAL 
 
-###### **Fever**
+- Fever
 
 Not only it recieve recognition internationally but it also gain more fame in the group because of this masterpiece. 
 Fever is about wanting someone to acknowledge their presence, compares their body temperature to vampire (an ongoing supernatural theme in ENHYPEN universe), and hoping to get healed after much suffering.
@@ -25,7 +26,7 @@ Fever is about wanting someone to acknowledge their presence, compares their bod
 
 # DIMENSION: DELIMMA 
 
-###### **Upper Side Dreamin'** 
+- Upper Side Dreamin'
 
 This song is one of the best b-sides tracks aside from fever. It helps me feel relaxed and calm while doing my module sometimes it can distract you because of it's catchy tone.  
 
@@ -33,13 +34,15 @@ This song is one of the best b-sides tracks aside from fever. It helps me feel r
 
 # DIMENSION: ANSWER
  
-###### **Blessed-Cursed**
+- Blessed-Cursed
+
+
 
 This song was a mix of rock and pop. When I first heard this song, it's quite different from their previous combacks but as you repeat it again you will get addicted to the song. 
 
 [![ENHYPEN](https://user-images.githubusercontent.com/102729941/161178884-9d9757f9-080d-4824-8f4f-960752a98e1c.jpg)](https://youtu.be/osmHArcf_aE)
 
-###### **Polaroid love**
+- Polaroid love
 
 Polaroid Love is a much softer song in contrast to “Blessed-Cursed,” as the lyrics compare love to a polaroid photograph. With melodic voices and a soft tune, “Polaroid Love” is a beautiful track and very opposite of their powerful “Blessed-Cursed.”
 
@@ -51,7 +54,7 @@ Polaroid Love is a much softer song in contrast to “Blessed-Cursed,” as the 
 
 
 
-## **ENHYPEN is available on these apps**
+###### **ENHYPEN is available on these apps:**
 
 [INSTAGRAM](https://instagram.com/enhypen?utm_medium=copy_link)
 
